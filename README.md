@@ -16,6 +16,9 @@ Table of Contents
 
 [BobbyBroccoli](https://youtube.com/@BobbyBroccoli)
 
+[Super Eyepatch Wolf]()
+- [What the Internet Did to Garfield](https://www.youtube.com/watch?v=O2C5R3FOWdE)
+
 ## Books
 
 ## Movies
