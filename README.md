@@ -18,6 +18,9 @@ Table of Contents
 
 [Knowing Better](https://youtube.com/@KnowingBetter)
 
+[Super Eyepatch Wolf]()
+- [What the Internet Did to Garfield](https://www.youtube.com/watch?v=O2C5R3FOWdE)
+
 ## Books
 
 ## Movies
