@@ -16,6 +16,8 @@ Table of Contents
 
 [BobbyBroccoli](https://youtube.com/@BobbyBroccoli)
 
+[Knowing Better](https://youtube.com/@KnowingBetter)
+
 ## Books
 
 ## Movies
