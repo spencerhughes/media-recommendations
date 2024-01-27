@@ -21,6 +21,8 @@ Table of Contents
 [Super Eyepatch Wolf]()
 - [What the Internet Did to Garfield](https://www.youtube.com/watch?v=O2C5R3FOWdE)
 
+[Folding Ideas](https://youtube.com/@FoldingIdeas) 
+
 ## Books
 
 ## Movies
