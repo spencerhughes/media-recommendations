@@ -23,6 +23,9 @@ Table of Contents
 
 [Folding Ideas](https://youtube.com/@FoldingIdeas) 
 
+[Dominic Noble](https://youtube.com/@Dominic-Noble?si=UmLb5kZx08medBYV)
+- [Lost in Adaptation: Starship Troopers](https://youtu.be/k-4GjUyJiUg?si=wQBvoZg7HmxaDIZt)
+
 ## Books
 
 ## Movies
